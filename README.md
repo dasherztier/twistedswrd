@@ -1,10 +1,14 @@
 ## some of my artwork will be dropped here
 will add more and remove some in future 
 
-<img width="1146" height="947" alt="image" src="https://github.com/user-attachments/assets/0d7fedac-96df-4bd3-bb88-fc2e1972cd21" /> <img width="882" height="789" alt="image" src="https://github.com/user-attachments/assets/406225cc-460d-46fc-b696-f8461592731d" />
+<img width="1109" height="898" alt="image" src="https://github.com/user-attachments/assets/9a4956c3-9239-454c-8b76-c1981d69ff0f" />
+
+june 10-14 2026, rendering practice i gave up on
 
 
-june 6-10 2026. nortmelly sketches, really proud of the first one
+<img width="1146" height="947" alt="image" src="https://github.com/user-attachments/assets/0d7fedac-96df-4bd3-bb88-fc2e1972cd21" />
+
+june 6-7 2026. nortmelly sketch, really proud of this one
 
 <img width="1160" height="857" alt="image" src="https://github.com/user-attachments/assets/50a11b57-e227-4289-a477-8eced62c110a" />
 
