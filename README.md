@@ -1,10 +1,13 @@
 ## some of my artwork will be dropped here
 will add more and remove some in future 
 
+<img width="1028" height="797" alt="image" src="https://github.com/user-attachments/assets/de5da0ad-a85c-4391-911f-ea8dc1ff400d" /> <img width="1133" height="831" alt="image" src="https://github.com/user-attachments/assets/446fb4c2-9668-43bf-844b-57342a019229" />
+
+wip been working on this for a while
+
 <img width="1109" height="898" alt="image" src="https://github.com/user-attachments/assets/9a4956c3-9239-454c-8b76-c1981d69ff0f" />
 
 june 10-14 2026, rendering practice i gave up on
-
 
 <img width="1146" height="947" alt="image" src="https://github.com/user-attachments/assets/0d7fedac-96df-4bd3-bb88-fc2e1972cd21" />
 
