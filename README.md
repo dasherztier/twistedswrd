@@ -1,6 +1,7 @@
 ## some of my artwork will be dropped here
 will add more and remove some in future 
 
+
 <img width="1028" height="797" alt="image" src="https://github.com/user-attachments/assets/de5da0ad-a85c-4391-911f-ea8dc1ff400d" /> <img width="1133" height="831" alt="image" src="https://github.com/user-attachments/assets/446fb4c2-9668-43bf-844b-57342a019229" />
 
 wip been working on this for a while
@@ -29,8 +30,16 @@ may 16 2026. random rendering practice
 
 april 10 2026. was also supposed to do noelle and rudy but gave up on this sketch
 
+<img width="592" height="886" alt="image" src="https://github.com/user-attachments/assets/aa84b753-27e6-4b73-a3d8-285584166f1b" />
 
+march 22 2026. still really like this one. evanescia my goat
 
+<img width="710" height="649" alt="image" src="https://github.com/user-attachments/assets/cedce7d8-90f3-465b-bab0-6a8ea1620bf7" /> <img width="1023" height="711" alt="image" src="https://github.com/user-attachments/assets/dd02f788-d9c8-488a-992e-d5eeeefe24d3" />
 
+march 3-4 2026, wanted to redraw that sparxie illustration in my style and abandoned it successfully
+
+<img width="916" height="422" alt="image" src="https://github.com/user-attachments/assets/e069e33a-230a-4be8-8eba-afaac1e2ca2b" /> 
+
+february 8 2026 
 
 
