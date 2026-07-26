@@ -40,6 +40,6 @@ march 3-4 2026, wanted to redraw that sparxie illustration in my style and aband
 
 <img width="916" height="422" alt="image" src="https://github.com/user-attachments/assets/e069e33a-230a-4be8-8eba-afaac1e2ca2b" /> 
 
-february 8 2026 
+february 8 2026. choose your vessel (you can't)
 
 
