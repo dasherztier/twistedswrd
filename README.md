@@ -1,6 +1,9 @@
 ## some of my artwork will be dropped here
 will add more and remove some in future 
 
+<img width="744" height="910" alt="image" src="https://github.com/user-attachments/assets/6711f59e-f726-407f-afaa-60bbfbe7347b" />
+
+wip. she's so cute, i sure hope nothing bad happens to her!
 
 <img width="1028" height="797" alt="image" src="https://github.com/user-attachments/assets/de5da0ad-a85c-4391-911f-ea8dc1ff400d" /> <img width="1133" height="831" alt="image" src="https://github.com/user-attachments/assets/446fb4c2-9668-43bf-844b-57342a019229" />
 
