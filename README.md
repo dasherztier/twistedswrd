@@ -1,9 +1,9 @@
 ## some of my artwork will be dropped here
 will add more and remove some in future 
 
-<img width="726" height="874" alt="image" src="https://github.com/user-attachments/assets/f1d120d9-f7eb-431d-ba4f-03aacee190da" />
+<img width="800" height="942" alt="image" src="https://github.com/user-attachments/assets/d11b53cd-69c3-4ddd-a4db-030faa6db81a" />
 
-wip. the glass is shattered
+wip. the glass has shattered
 
 <img width="1028" height="797" alt="image" src="https://github.com/user-attachments/assets/de5da0ad-a85c-4391-911f-ea8dc1ff400d" /> <img width="1133" height="831" alt="image" src="https://github.com/user-attachments/assets/446fb4c2-9668-43bf-844b-57342a019229" />
 
