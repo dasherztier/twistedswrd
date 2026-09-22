@@ -1,6 +1,14 @@
 ## some of my artwork will be dropped here
 will add more and remove some in future 
 
+<img width="1079" height="730" alt="image" src="https://github.com/user-attachments/assets/b2d8d46f-e5e1-4deb-ac87-29dea6061ba4" />
+
+september 22 2026. the place where it snowed or some shi (wintryrune by [wasp](https://github.com/chunglets))
+
+<img width="1185" height="895" alt="Снимок экрана 2026-09-18 200654" src="https://github.com/user-attachments/assets/f5a3b0f3-41fc-4a4d-a7d1-94e00c42bdb2" />
+
+september 18 2026. based off of a everymanhybrind episode. something something 7b (dont really like how it turned out tho, might redo in future) (wintryrune by [wasp](https://github.com/chunglets))
+
 <img width="800" height="942" alt="image" src="https://github.com/user-attachments/assets/d11b53cd-69c3-4ddd-a4db-030faa6db81a" />
 
 wip. the glass has shattered
